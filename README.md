@@ -1,9 +1,7 @@
 - 👋 Hi, I’m @Oxccb5
-- 👀 I’m interested in money women and money
+- 👀 I’m interested in money money & money
 - 🌱 I’m currently learning how to survive 
-- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me -Dont
-- 😄 Pronouns: Mr/sir
 - ⚡ Fun fact⚱️
 
 <!---
